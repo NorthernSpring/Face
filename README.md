@@ -14,4 +14,4 @@
 
 
 
-![](file:///C:/Users/Northern/Desktop/photo_2023-04-05_17-11-19.jpg)
+![](file:///C:/Users/Northern/Desktop/testo/photo_2023-04-05_17-11-19.jpg)
