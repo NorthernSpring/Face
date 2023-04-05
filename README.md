@@ -9,4 +9,5 @@
 
 #### любительница нового и интересного - прекрасного и нового в этом мире большее чем всего остального.
 
-![](file:///C:/Users/Northern/Desktop/testo/photo_2023-04-05_17-11-19.png)
+
+[def]: file:///C:/Users/Northern/Desktop/testo/photo_2023-04-05_17-11-19.png
